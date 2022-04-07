@@ -6,4 +6,6 @@ I am a new programmer and seeking to expand knowlege and skill.
 
 If you need a low level code monkey, give me a shot as I require experience.
  
-Connect here or on twitter @Ardrax4
+Connect
+ - On twitter @Ardrax4
+ - Via email c.neville91@outlook.com
